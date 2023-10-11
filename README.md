@@ -1,5 +1,5 @@
 My name is Shivanshu Singh.
-I belong to New Okhla Industrial Develovepment Authority(NOIDA), Uttar Pradesh.
+I belong to (NOIDA), Uttar Pradesh.
 I had completed my schooling from St. Mary's School,Bijnor and scored 80% in my 10th standard and 62% in my 12th standard from ICSE board.
 I had completed my Graduation from Gautam Buddha University, Greater Noida as a Bachelor of Technology in Computer Science and Engineering in 2023 with 8.1 CGPA.
 And currently i am pursuing Post Graduate Diploma in Development in Advance Computing(PD-DAC) from IACSD, Pune.
